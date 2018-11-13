@@ -1,2 +1,11 @@
-# paintings
-paintings
+# Paintings
+![Adams family](https://nanjizal.github.io/paintings/assets/adamsFamily.jpg)
+![Bath Abbey](https://nanjizal.github.io/paintings/assets/bathAbbey.jpg)
+![Composite of Paintings](https://nanjizal.github.io/paintings/assets/composite.jpg)
+![Pultney Bridge for Jacinthas wedding](https://nanjizal.github.io/paintings/assets/jacinthasWeddingPultneyBridge.jpg)
+![Napkin Sketch for Niece](https://nanjizal.github.io/paintings/assets/napkinSketchforNiece.jpg)
+![Watercolor of Bristol based on mums painting](https://nanjizal.github.io/paintings/assets/paintingBristol.jpg)
+![Porthtowan Beach](https://nanjizal.github.io/paintings/assets/porthtowanBeach.jpg)
+![Putney Bridge waiting for A'level results](https://nanjizal.github.io/paintings/assets/pultneyBridgeAfterAlevels.jpg)
+![Pump Room Bath](https://nanjizal.github.io/paintings/assets/pumpRoomBath.jpg)
+![Life painting with bright tablecloth](https://nanjizal.github.io/paintings/assets/tablecloth.jpg)
