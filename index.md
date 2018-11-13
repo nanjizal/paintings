@@ -1,4 +1,4 @@
-![Works are Licensed for non commercial, non derivative use only](https://nanjizal.github.io/paintings/License.md)
+### Works are Licensed for non commercial, non derivative use only see ![license >](https://nanjizal.github.io/paintings/License.md)
 ![Adams family](https://nanjizal.github.io/paintings/assets/adamsFamily.jpg)
 ![Bath Abbey](https://nanjizal.github.io/paintings/assets/bathAbbey.jpg)
 ![Composite of Paintings](https://nanjizal.github.io/paintings/assets/composite.jpg)
