@@ -1,4 +1,3 @@
-# Paintings
 ![Adams family](https://nanjizal.github.io/paintings/assets/adamsFamily.jpg)
 ![Bath Abbey](https://nanjizal.github.io/paintings/assets/bathAbbey.jpg)
 ![Composite of Paintings](https://nanjizal.github.io/paintings/assets/composite.jpg)
