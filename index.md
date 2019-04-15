@@ -16,7 +16,7 @@ Based on one of my old ones for friends wedding.
 
 ![Pultney Bridge for Jacinthas wedding](https://nanjizal.github.io/paintings/assets/jacinthasWeddingPultneyBridge.jpg)
 
-Just a napkin sketch for my niece where I added animals they suggested, having coffee with her family, rather rough.
+Just a napkin sketch for my niece where I added animals they suggested, or guess what animal I was adding, while having coffee with my sisters family, not my best drawing! But fun.
 
 ![Napkin Sketch for Niece](https://nanjizal.github.io/paintings/assets/napkinSketchforNiece.jpg)
 
