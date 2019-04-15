@@ -1,6 +1,6 @@
 ### Works are Licensed for non commercial, non derivative use only see license.
 
-Brothers family from photo.
+Brothers family from photo, some aspects not really working must have another go.
 ![Adams family](https://nanjizal.github.io/paintings/assets/adamsFamily.jpg)
 
 Very quick designer guache of bath abbey painted just after A'level.
