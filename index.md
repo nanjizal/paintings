@@ -9,3 +9,4 @@
 ![Putney Bridge waiting for A'level results](https://nanjizal.github.io/paintings/assets/pultneyBridgeAfterAlevels.jpg)
 ![Pump Room Bath](https://nanjizal.github.io/paintings/assets/pumpRoomBath.jpg)
 ![Life painting with bright tablecloth](https://nanjizal.github.io/paintings/assets/tablecloth.jpg)
+![Cornish windmills](https://nanjizal.github.io/paintings/assets/cornishWindmills.jpg)
