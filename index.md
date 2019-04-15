@@ -32,7 +32,7 @@ Green paper with chalks and pastels and some guache/watercolour.
 
 ![Putney Bridge waiting for A'level results](https://nanjizal.github.io/paintings/assets/pultneyBridgeAfterAlevels.jpg)
 
-Green ink and gauche/watercolor painted outside the pump room fairly fast just after A'levels.
+Green ink ( with dip nib ) and gauche/watercolor painted outside the pump room fairly fast just after A'levels.
 
 ![Pump Room Bath](https://nanjizal.github.io/paintings/assets/pumpRoomBath.jpg)
 
