@@ -40,6 +40,6 @@ Painted in a life class on brown wrapping paper that warps.
 
 ![Life painting with bright tablecloth](https://nanjizal.github.io/paintings/assets/tablecloth.jpg)
 
-Painted during teaching a watercolour class from a photo, finish a little afterwards but mostly between teaching.
+Painted during teaching a watercolour class from a photo, finish a little afterwards but mostly between teaching. Really should photo it without glass as reflections distort it some.
 
 ![Cornish windmills](https://nanjizal.github.io/paintings/assets/cornishWindmills.jpg)
