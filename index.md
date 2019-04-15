@@ -15,7 +15,7 @@ Based on one of my old ones for friends wedding.
 Just a napkin sketch for my niece where I added animals they suggested, having coffee with her family, rather rough.
 ![Napkin Sketch for Niece](https://nanjizal.github.io/paintings/assets/napkinSketchforNiece.jpg)
 
-Just after mum passed I decided to do a watercolour of one of her Oils it's similar but very different.
+Just after mum passed I decided to do a watercolour of one of her Oils it's similar but very different, more colour not as nice as hers in some ways, certainly my largest watercolour.
 ![Watercolor of Bristol based on mums painting](https://nanjizal.github.io/paintings/assets/paintingBristol.jpg)
 
 Painted on Porthtowen beach on a very hot day, later removed a rather dark figure and soften off and cropped.
