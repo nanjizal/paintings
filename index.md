@@ -43,3 +43,7 @@ Painted in a life class on brown wrapping paper that warps.
 Painted during teaching a watercolour class from a photo, finish a little afterwards but mostly between teaching. Really should photo it without glass as reflections distort it some.
 
 ![Cornish windmills](https://nanjizal.github.io/paintings/assets/cornishWindmills.jpg)
+
+Flamingo, created using apple pencil in sketchpad2 basic graphic editor photographed because in apple store could not save image.
+
+![Flamingo](https://nanjizal.github.io/paintings/assets/flamingo.jpg)
