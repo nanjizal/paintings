@@ -47,3 +47,8 @@ Painted during teaching a watercolour class from a photo, finish a little afterw
 Flamingo, created using apple pencil in sketchpad2 basic graphic editor photographed because in apple store could not save image.
 
 ![Flamingo](https://nanjizal.github.io/paintings/assets/flamingo.jpg)
+
+Experiments with painting ties for fancy dress parties and for fun.
+
+![Silk Ties](https://nanjizal.github.io/paintings/assets/ties.jpg)
+
